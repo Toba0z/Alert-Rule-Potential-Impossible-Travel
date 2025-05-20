@@ -1,0 +1,1 @@
+# Alert-Rule-Potential-Impossible-Travel
